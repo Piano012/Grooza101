@@ -1,4 +1,6 @@
 ### Hi there 👋, Welcome!
+![Black and Red Gradient Professional LinkedIn Banner](https://github.com/Grooza101/Grooza101/assets/85122391/a7d86879-98f0-41fc-afe5-565472b70008)
+
 
 <!--
 **Grooza101/Grooza101** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
