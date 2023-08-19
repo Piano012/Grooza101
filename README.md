@@ -39,7 +39,7 @@ Let's code the future together.
 Stay curious,
 Mohamed
 
-*Contact: [Your Email Address](elfarfachi.mohamed2002@gmail.com) | [[LinkedIn]](https://www.linkedin.com/in/mohamed-el-farfachi/) | [[Portfolio Website]](https://mohamedelfarfachi.me/)*
+*Contact:  [[LinkedIn]](https://www.linkedin.com/in/mohamed-el-farfachi/) | [[Portfolio Website]](https://mohamedelfarfachi.me/)*
 
 
 <!--
