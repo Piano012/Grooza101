@@ -1,5 +1,6 @@
 ### Hi there 👋, Welcome!
-![Black and Red Gradient Professional LinkedIn Banner](https://github.com/Grooza101/Grooza101/assets/85122391/a7d86879-98f0-41fc-afe5-565472b70008)
+![Red and Black Modern Personal LinkedIn Banner](https://github.com/Grooza101/Grooza101/assets/85122391/0c1fbd3d-b215-4500-8208-f630371c6dfa)
+
 
 
 <!--
