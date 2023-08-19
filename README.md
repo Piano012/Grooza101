@@ -1,5 +1,7 @@
 ### Hi there 👋, Welcome!
-![Red and Black Modern Personal LinkedIn Banner](https://github.com/Grooza101/Grooza101/assets/85122391/0c1fbd3d-b215-4500-8208-f630371c6dfa)
+![Banner](https://github.com/Grooza101/Grooza101/assets/85122391/99f1e250-9bd0-43ff-8b07-508ec89f4afd)
+
+  
 
 # Mohamed - Full-Stack Developer Extraordinaire
 
