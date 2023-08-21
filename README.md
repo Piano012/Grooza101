@@ -1,5 +1,6 @@
 ### Hi there 👋, Welcome!
-![Banner](https://github.com/Grooza101/Grooza101/assets/85122391/99f1e250-9bd0-43ff-8b07-508ec89f4afd)
+
+![banner-profile](https://github.com/Grooza101/Grooza101/assets/85122391/8db00f3c-4c6c-402e-a53f-db237ec974c9)
 
   
 
